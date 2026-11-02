@@ -35,7 +35,7 @@ I'm a Mechatronics Engineering graduate from **Rajshahi University of Engineerin
 
 ## 📫 Connect
 
-- Email: Bsifatsamad48@gmail.com
+- Email: sifatsamad48@gmail.com
 - LinkedIn: _add your link_
 - Portfolio: _add your site link once published_## Hi there 👋
 
